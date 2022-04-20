@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Downed_Wings
+- 👀 I’m interested in First Person Shooters
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on any coding project that I agree on
+- 📫 How to reach me leonq1004@outlook.com
